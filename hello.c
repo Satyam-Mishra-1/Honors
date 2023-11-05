@@ -1,6 +1,0 @@
-We 
-
-the 
-
-pople
-
